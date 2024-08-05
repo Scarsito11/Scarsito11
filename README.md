@@ -8,4 +8,5 @@ Meu nome é Gabriel Porto
 ### você pode entrar em contato comigo 📧
 
 CWzinx7@gmail.com
-@gb_rlk7
+@cb_rlk7
+![](https://media.tenor.com/nAMuwsQmPecAAAAM/clash-royale.gif)
